@@ -1,1 +1,0 @@
-Telegram kanal: https://t.me/nurillo_tojiakhmedov
